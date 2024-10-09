@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on front-end web programming and godot based game engine.
 - 📫 How to reach me : instagram= @fatimahazzahraofficialreal
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: im a noob 3d Designer u can see my design on my insta too.
+- ⚡ Fun fact: im a 3d Designer u can see my design on my insta too.
